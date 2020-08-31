@@ -1,0 +1,2 @@
+# Android_Q_10_for_box_Nexon_X8_Amlogic_s905x3_A55_4GB_64GB
+Android_Q_10_for_box_Nexon_X8_Amlogic_s905x3_A55_4gb_64gb
